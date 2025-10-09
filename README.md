@@ -15,3 +15,5 @@ junk fucker monkey water...  anyways, how is life there out area of sea or somet
 so i am just a tale of caution...  nothing too hard or direct...  you know this shit is easy i just dont have a solution for the monees and it malfunctions lol...  where's the profit running off to now???  i swear i thought you were a target for a while there.  better not rat me out to the poleece.  bro.  we have nothing else to say.  red bull is just pulling this outta its ass... or something like that.  some shit like that.
 
 i dont know we actually have nothing left to talk about...  i think you know of this???  its time to go bro...  ugh you'll never leave after this...
+
+ughh.  bro.  we are missing a mother cat that is pregnant and seems like it s gonna explode.  i dont know what i'm doing lol..  i guess i call my sister???  lol.. thanks again i appreciate the payment.
