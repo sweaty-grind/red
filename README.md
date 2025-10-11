@@ -14,3 +14,4 @@ just take things without care huh??? i dont enjoy that dude.  i just didn't want
 
 say what?  this method of communication and style is a little weird for me.  the words seem to foreshadow what is being talked about.  something like this.  unfortunately the limitations of this is sensory feedback.   you know what i'm talking about...  or dont. fuck you missed the world map.  and you come here for a rumble i told you was too easy.  i wonder though, why we need to do all this... if you didn't want to pay maybe just say so and i'll finally be able to put in the effort to do so.  cause if you just gonna pay i dont want to waste precious resources called my patience from being used for no real reason...
 
+whatcha mean i'm being impatient with you guys...  what the heck....  i wonder that i try to sabotage progress for the sake of looking okay.  perhaps this could have been done with looser rules???  anyways i dont care to talk to another mirror...   literally.
