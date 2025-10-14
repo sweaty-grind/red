@@ -21,3 +21,9 @@ soo tomoorow morning i will have vray lar.  excited kinda if i could keep track 
 i dont know bro.  i dont understand what you want from me.  i mean if i was you i would be like lets free load off this guy lol...  and then you did it lol....
 
 i have tastes you know.  jeesus nobody want your crazy shit.  i'm crazy already i dont see why you need to be too.  one of us is in control here and its not me.  good grief.
+
+dude i'm lost and confused... wtf is going on again?? i get huge pay check in 6 months???  why bother right??  dude, when you live like this you only care about a few things.  and i am always going to be like this and sharkey says thats the cannibal...  cannibal?? looks like another day in the empire.  
+
+so this thing is here to stop thihnking.  when i type i think and when i dont i hear.. something like that.  sometimes i wonder if i figured out a sensible timeline that lets me do fun things but i hoped we could goof around a little bit cause the rest of it is like a bad joke.
+
+think think think think.. every day dude.  i dont know how to tell you i hated doing this shit for zero gain.  push me to the limits for another fraud of the skilled.  so i wondered how i could promise everybody that the right things happened then i forgot to tell you about it lol... whoops.
