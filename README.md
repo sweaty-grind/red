@@ -27,3 +27,7 @@ dude i'm lost and confused... wtf is going on again?? i get huge pay check in 6 
 so this thing is here to stop thihnking.  when i type i think and when i dont i hear.. something like that.  sometimes i wonder if i figured out a sensible timeline that lets me do fun things but i hoped we could goof around a little bit cause the rest of it is like a bad joke.
 
 think think think think.. every day dude.  i dont know how to tell you i hated doing this shit for zero gain.  push me to the limits for another fraud of the skilled.  so i wondered how i could promise everybody that the right things happened then i forgot to tell you about it lol... whoops.
+
+so the skilled showed who was up with that i expected better but no go.  this place is getting melded with the site...  for some reason that you need to understand that i could not keep shut if i wanted to.   just splodes on you.
+
+hmm dont mind me i'm brain surfing...  its like a thing.
