@@ -31,3 +31,5 @@ think think think think.. every day dude.  i dont know how to tell you i hated d
 so the skilled showed who was up with that i expected better but no go.  this place is getting melded with the site...  for some reason that you need to understand that i could not keep shut if i wanted to.   just splodes on you.
 
 hmm dont mind me i'm brain surfing...  its like a thing.
+
+vrylar is too good to be true.  richter eh???
